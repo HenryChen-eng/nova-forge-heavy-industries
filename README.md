@@ -1,4 +1,4 @@
-# NOVA FORGE · 星铸重工
+# NOVA FORGE HEAVY INDUSTRIES · 星铸重工
 
 未来科幻重工业风格品牌落地页（自包含单文件 HTML）。
 
